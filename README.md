@@ -1,1 +1,0 @@
-# parti3.github.io
